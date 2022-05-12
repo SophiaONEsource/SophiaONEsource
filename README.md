@@ -2,7 +2,7 @@
                with no coding schooling experience.
                
 - 👀 I’m interested in creating chain based space 
-     to manifest light-art-value with metaverse
+     to manifest light-art-value with blockchain
 - 🌱 I’m currently learning meta structures of the unknown-dark-unconscious, 
      downloading structures into the matrix, 
      emplementing them to serve light spreading on the Earth, 
